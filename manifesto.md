@@ -8,7 +8,7 @@ Openness means that everyone can contribute to related projects. Also everyone c
 
 # Why we want to be immortal?
 
-Wouldn't it be great when one could live considerably longer with great health? To stare at stars and plan for hundreds of years ahead?
+Wouldn't it be great when one could live considerably longer with great health? To stare at stars and plan for hundreds of years ahead? To live disease free life?
 
 # When we will be immortal?
 
